@@ -1,1 +1,1 @@
-# -
+Comparing pictures
